@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning ... Android Studio
 - 💞️ I’m looking to collaborate on ...Not LOoking h333
 - 📫 How to reach me ... I Am In Palestine No One Care
+-Dont Click The Link  Not SAFE
+-xD 
 
 <!---
 BaselIzz/BaselIzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
